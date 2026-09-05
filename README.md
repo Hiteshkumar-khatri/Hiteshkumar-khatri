@@ -26,7 +26,7 @@ I'm a FinTech student exploring **software development, AI, data, and automation
 
 ## Connect
 
-[GitHub](https://github.com/Hiteshkumar-khatri)   [linkedin]([https://github.com/Hiteshkumar-khatri](https://www.linkedin.com/in/hitesh-kumar-1b98bb3b5/)) 
+[GitHub](https://github.com/Hiteshkumar-khatri)   [linkedin](www.linkedin.com/in/hitesh-kumar-1b98bb3b5) 
 
 ---
 
